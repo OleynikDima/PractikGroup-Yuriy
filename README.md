@@ -1,1 +1,0 @@
-# PractikGroup-Yuriy
